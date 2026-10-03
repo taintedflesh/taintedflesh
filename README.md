@@ -6,6 +6,9 @@ Toi ${\color{#9E0000} or}$ Reau. <img src="https://i.postimg.cc/hGp3dJp2/red.gif
 <code>any</code> prns. idgafgender<br>
 <img src="https://i.postimg.cc/KvMbMgRy/red.gif" alt="Pen" width="20" height="20"><br>
  <sub> [*新*](https://mika.atabook.org)ㅤ<img src="https://i.postimg.cc/h4Z6M4Hf/red.gif" alt="Pen" width="15" height="15">ㅤ[*StrawPage*](https://anaxa.straw.page/)ㅤ<img src="https://i.postimg.cc/m2CDGn3c/red.png" alt="Pen" width="15" height="15">ㅤ[*Edit*](https://vm.tiktok.com/ZN8hWuuGx/)<br>
+ <details>
+        <summary>   ❓ more. </summary>
+  
 - <sub> usually with my bbffie Vik...don't take it personal if I want to run to Vik once online.. #LowkeyADog</sub><br>
-- <sub> No Explicit Dni criteria, I Hide freely, even if I rarely do so. I may be annoying with my interests, I don't like to share some of my favorites. </sub> <br>
+- <sub> No Explicit Dni criteria, I Hide freely. I may be annoying with my interests, I don't like to share some of my favorites. </sub> <br>
 - <sub> I might be weird at first, my mental and physical health is poor, but do not be scared to interact with me if you wish to do so.. I'm a nice awkward weirdo/pervert. and that's Wonderful! <sub>

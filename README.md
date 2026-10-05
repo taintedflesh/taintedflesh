@@ -1,14 +1,23 @@
 <div id="text" align="center">
 
-،، ݃<img src="https://i.postimg.cc/2SNDF8ZG/red.gif" alt="Pen" width="20" height="20">  ⠀... <code>[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=17&duration=1500&pause=1000&color=9E0000&width=111&height=26&lines=%E7%97%9B%E3%81%84%EF%BC%81;%E7%A7%81%E3%82%92%E5%88%87%E3%81%A3%E3%81%A6;%E7%97%9B%E3%81%84%E3%81%A7%E3%81%99;%E9%A0%AD%E3%81%8C%E7%97%9B%E3%81%84%E3%81%A7%E3%81%99;%E3%81%8A%E8%85%B9%E3%81%8C%E7%97%9B%E3%81%84%E3%81%A7%E3%81%99)](https://git.io/typing-svg)</code>͜𓏼✚  ⠀<img src="https://i.postimg.cc/kG54CMc2/red.gif" alt="Pen" width="25" height="25"><br>
-![](https://file.garden/Z4_uMXj5okOfzfmz/kyaahrlpme)<br>
-Toi ${\color{#9E0000} or}$ Reau. <img src="https://i.postimg.cc/hGp3dJp2/red.gif" alt="Pen" width="20" height="20"> **20**岁..<br>
-<code>any</code> prns. idgafgender<br>
-<img src="https://i.postimg.cc/KvMbMgRy/red.gif" alt="Pen" width="20" height="20"><br>
- <sub> [*新*](https://mika.atabook.org)ㅤ<img src="https://i.postimg.cc/h4Z6M4Hf/red.gif" alt="Pen" width="15" height="15">ㅤ[*StrawPage*](https://anaxa.straw.page/)ㅤ<img src="https://i.postimg.cc/m2CDGn3c/red.png" alt="Pen" width="15" height="15">ㅤ[*Edit*](https://vm.tiktok.com/ZN8hWuuGx/)<br>
- <details>
-        <summary>   ❓ more. </summary>
+،، ݃<img src="https://files.catbox.moe/bzpmhd.gif" alt="Pen" width="20" height="20">   ⠀  <code>[![Typing SVG](https://readme-typing-svg.demolab.com?font=Arial&weight=100&size=17&duration=2000&pause=1000&color=929C50&center=true&vCenter=true&width=290&height=26&lines=I've+made+peace+with+the+fact+that;I'm+a+lowly%2C+stupid%2C+insignificant+human;who+can't+do+anything+right.)](https://git.io/typing-svg)</code>  ⠀  ۪𓈒 ຼ˚ִִ𓈒꒱  <br>
+  <table>
+<tr>
+<td style="vertical-align: top;">
+  <img src="https://file.garden/Z4_uMXj5okOfzfmz/ezgif.com-gif-maker.gif" alt="Pen" width="90" height="115">
+</td>
+
+<td style="vertical-align: top;">
+  <div class="message">
+    ~ <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled119_20260919114902.png" width="20" height="20" alt="Description"><i>pervert at heart</i> iwc.<br>
+${\color{#8d916d} read}$ ${\color{#a2bf63} rentry}$. hi <a href="https://github.com/hollow-cirque">zan</a>, <a href="https://github.com/embalmcinth">vik</a>🩹<br>
+    <a href="https://mika.atabook.org/"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled115_20260919113000.png" width="60" height="20" alt="Description"></a> <img src="https://i.postimg.cc/cC3wspmL/1208199077674881094.gif" alt="Pen" width="20" height="20"> <a href="https://rentry.co/trust"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled115_20260919113115.png" width="60" height="23" alt="Description"></a><br>
+ 𓈒 ˚ 𓏻 ‎ <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/15/l23.webp" alt="Pen" width="20" height="20"> ᣟᣟ<code>BMF!!!</code> ⏝ི
+  </div>
+</td>
+</tr>
+</table>
   
-- <sub> usually with my bbffie Vik...don't take it personal if I want to run to Vik once online.. #LowkeyADog</sub><br>
-- <sub> No Explicit Dni criteria, I Hide freely. I may be annoying with my interests, I don't like to share some of my favorites. </sub> <br>
-- <sub> I might be weird at first, my mental and physical health is poor, but do not be scared to interact with me if you wish to do so.. I'm a nice awkward weirdo/pervert. and that's Wonderful! <sub>
+⠀ ⠀ ⠀art cr: <a href="https://x.com/redactedhaunt"> ①</a> + <a href="https://www.tiktok.com/@peakksie?_r=1&_t=ZN-9A0m1tOxAn8"> ❷</a>. ⊹ ࣪ ˖![](https://komarev.com/ghpvc/?username=KOMAHlNA&color=929C50&label=clovers♡)   ⸝⸝ ⠀<br><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Arial&size=17&duration=1900&pause=900&color=929C50&width=77&height=27&lines=%EF%B8%B5%E0%B9%91%CB%8A%CF%89%CB%8B+%E2%99%AF+%F3%A0%81%90" alt="Typing SVG" /></a>
+<br>
+  <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled120_20260919125136.png" alt="Pen" width="190" height="20">  
